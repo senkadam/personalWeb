@@ -1,2 +1,2 @@
 # personalWeb
-My personal web presentation
+My personal- Adam Senk -  web presentation
